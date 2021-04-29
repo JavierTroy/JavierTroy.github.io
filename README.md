@@ -1,1 +1,0 @@
-# JavierTroy.github.io
